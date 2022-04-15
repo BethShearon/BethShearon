@@ -8,6 +8,8 @@
 
 - 😄 Pronouns: she/her
 
+- ✨ GitHub was just getting started when I was at university for E-Commerce and Computer Science, & evidently it's a thing now, go GitHub.
+
 - 🌱 I’m always learning 
 
 
