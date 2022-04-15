@@ -10,6 +10,8 @@
 
 - 🌱 I’m always learning 
 
+- 💬 Ask me about plant-based nutrition 
+
 
 
 <!--
