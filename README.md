@@ -10,7 +10,7 @@
 
 - 🌱 I’m always learning 
 
-- 💬 Ask me about plant-based nutrition 
+- 💬 Ask me about plant-based nutrition .. or not, you know, if you don't feel like it lol 
 
 
 
